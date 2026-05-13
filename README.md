@@ -1,2 +1,3 @@
-<img width="900" height="1280" alt="tumblr_f883182692f4ab0cc48a1086480d7e8e_079ccf54_1280" src="https://github.com/user-attachments/assets/b767508a-b71c-4f15-95c5-872bbaa3b114" />
+
 ♪ ‿ he / they  ❤︎ dnc c+h
+<img width="1280" height="1280" alt="tumblr_08644787ee4c405643954a6bf56ed87a_704c5c60_1280" src="https://github.com/user-attachments/assets/e9ce77ad-e6c0-44a4-b3a4-1a5305b59cc6" />
