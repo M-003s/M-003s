@@ -1,2 +1,2 @@
-<img width="736" height="736" alt="𓄹 ׁ ͏ Sprout&#39;s icon ( DW ) 🍓⠀ ︵⠀ 𝃛" src="https://github.com/user-attachments/assets/77f120d1-5008-4ae0-a449-6bad459b4e85" />
+<img width="1280" height="1280" alt="tumblr_f883182692f4ab0cc48a1086480d7e8e_079ccf54_1280" src="https://github.com/user-attachments/assets/b767508a-b71c-4f15-95c5-872bbaa3b114" />
 ♪ ‿ he / they  ❤︎ dnc c+h
