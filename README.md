@@ -3,15 +3,16 @@
  fresh out of the oven !
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-  
+ intro :
  Ი︵𐑼
-  ♪ ‿ he / they  ❤︎ 𝘿nc ,c+h
+  ♪ ‿ he / they  ❤︎ 𝓭nc ,c+h
 
 sprout / kiran / may . 
  
- sprout irl fictkin 
+ sprout irl fictkin + soulvester fictkin 
+ ( both psychological ! )
  
- ni if com/darkshipper.
+ 𝘿ni if com/darkshipper.
 
  ₛ𝔀ₑₑₜ ₚᵣᵢₙ𝓬ₑ 🕰️
 
