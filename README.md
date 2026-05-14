@@ -20,7 +20,6 @@ sprout / kiran / may / soulvester .
 
   :　　⑅　♡
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31c6apitms2ls7lnxlfqy4ei7oem&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 
  
 
