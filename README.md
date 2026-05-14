@@ -15,7 +15,7 @@ sprout / kiran / may .
  sprout irl fictkin + soulv fictkin 
  
  
- I𝘿m if com/darkshipper. dont harass me tho
+ I𝘿c if com/darkshipper iwc pls.
 
  ₛ𝔀ₑₑₜ ₚᵣᵢₙ𝓬ₑ 🕰️
 
