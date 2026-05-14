@@ -15,7 +15,7 @@ sprout / kiran / may .
  sprout irl fictkin + soulv fictkin 
  
  
- 𝘿ni if com/darkshipper.
+ I𝘿m if com/darkshipper. dont harass me tho
 
  ₛ𝔀ₑₑₜ ₚᵣᵢₙ𝓬ₑ 🕰️
 
