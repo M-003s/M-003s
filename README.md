@@ -9,8 +9,8 @@
 
 sprout / kiran / may . 
  
- sprout irl fictkin + soulvester fictkin 
- ( both psychological ! )
+ sprout irl fictkin + soulv fictkin 
+ 
  
  𝘿ni if com/darkshipper.
 
