@@ -1,10 +1,6 @@
 [![Hits](https://hits.sh/github.com/RadioheadLover/hits.svg?label=paws&color=fa5c73&labelColor=5c5c5c)](https://hits.sh/github.com/RadioheadLover/hits/)
 
-<img width="500" height="" alt="tumblr_08644787ee4c405643954a6bf56ed87a_704c5c60_1280" src="https://github.com/user-attachments/assets/02d3acaf-6eb5-46b0-8b7b-5875098565b0" />
-
-<img width="232" height="45" alt="Screenshot 2026-05-15 at 10 50 40" src="https://github.com/user-attachments/assets/b75ba850-c313-4ba6-8d1f-dea79aefa7ef" />
-
-<img width="500" height="" alt="tumblr_b35c88dcf4557eda7e442348cf0396c1_f42f91c8_540" src="https://github.com/user-attachments/assets/5a12145c-6113-4c63-82ae-edfc8601985a" />
+<img width="1280" height="1280" alt="tumblr_d5c085cce80d392170b8deb07c3502be_c85eb426_1280" src="https://github.com/user-attachments/assets/33b57163-b365-4be5-b198-d1a7a8117ed5" />
 
  intro :
  
