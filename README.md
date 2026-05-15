@@ -2,16 +2,15 @@
 
 <img width="1280" height="1280" alt="tumblr_d5c085cce80d392170b8deb07c3502be_c85eb426_1280" src="https://github.com/user-attachments/assets/33b57163-b365-4be5-b198-d1a7a8117ed5" />
 
- intro :
+## intro :
  
  Ი︵𐑼
   ♪ ‿ he / they  ❤︎ 𝓭nc ,c+h
 
-sprout / kiran / may / soulvester . 
  
- sprout irl fictkin + soulv fictkin 
+ sprout fictkin + soulv fictkin 
  
- I𝘿c if com/darkshipper iwc pls.
+please read strawpage for more info !
 
  ₛ𝔀ₑₑₜ ₚᵣᵢₙ𝓬ₑ 🕰️
 
