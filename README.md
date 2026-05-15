@@ -6,10 +6,12 @@
 ## intro :
  
  Ი︵𐑼
-  ♪ ‿ he / they  ❤︎ 𝓭nc ,c+h🏳️‍⚧️
+  ♪ ‿ he / they  
+  
+  ❤︎ 𝓭nc ,c+h
 
  
- sprout fictkin + soulv fictkin , doubles✅
+ sprout + soulv fictkin , doubles✅
  
 please read strawpage for more info !
 
