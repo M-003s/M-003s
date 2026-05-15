@@ -1,6 +1,7 @@
 [![Hits](https://hits.sh/github.com/RadioheadLover/hits.svg?label=paws&color=fa5c73&labelColor=5c5c5c)](https://hits.sh/github.com/RadioheadLover/hits/)
 
-<img width="1280" height="1280" alt="tumblr_d5c085cce80d392170b8deb07c3502be_c85eb426_1280" src="https://github.com/user-attachments/assets/33b57163-b365-4be5-b198-d1a7a8117ed5" />
+<img width="736" height="736" alt="tumblr_f883182692f4ab0cc48a1086480d7e8e_079ccf54_1280" src="https://github.com/user-attachments/assets/a62c42af-5c36-4960-a641-56715d2f6fed" />
+
 
 ## intro :
  
