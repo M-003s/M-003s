@@ -2,9 +2,9 @@
 
 <img width="500" height="" alt="tumblr_08644787ee4c405643954a6bf56ed87a_704c5c60_1280" src="https://github.com/user-attachments/assets/02d3acaf-6eb5-46b0-8b7b-5875098565b0" />
 
-fresh out of the oven!
+<img width="232" height="45" alt="Screenshot 2026-05-15 at 10 50 40" src="https://github.com/user-attachments/assets/b75ba850-c313-4ba6-8d1f-dea79aefa7ef" />
 
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+<img width="500" height="" alt="tumblr_b35c88dcf4557eda7e442348cf0396c1_f42f91c8_540" src="https://github.com/user-attachments/assets/5a12145c-6113-4c63-82ae-edfc8601985a" />
 
  intro :
  
