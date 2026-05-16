@@ -10,8 +10,6 @@
  Ი︵𐑼
   ♪ ‿ he / they  
   
-  ❤︎ 𝓭nc ,c+h
-
  
  sprout + soulv fictkin , doubles✅
  
