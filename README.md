@@ -15,7 +15,7 @@
  
  sprout + soulv fictkin , doubles✅
  
-please read strawpage for more info !
+strawpage in wip
 
  ₛ𝔀ₑₑₜ ₚᵣᵢₙ𝓬ₑ 🕰️
 
