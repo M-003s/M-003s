@@ -1,27 +1,4 @@
 [![Hits](https://hits.sh/github.com/RadioheadLover/hits.svg?label=cupcakes%20given%20!&color=97ca00&labelColor=a13042)](https://hits.sh/github.com/RadioheadLover/hits/)
 − 🍓
-<img width="736" height="736" alt="tumblr_f883182692f4ab0cc48a1086480d7e8e_079ccf54_1280" src="https://github.com/user-attachments/assets/a62c42af-5c36-4960-a641-56715d2f6fed" />
 
-
-## intro :
- 
- Ი︵𐑼
-  ♪ ‿ he / they  
-  
- 
- sprout + soulv fictkin , doubles✅
- 
-strawpage in wip
-
- ₛ𝔀ₑₑₜ ₚᵣᵢₙ𝓬ₑ 🕰️
-
-  :　　⑅　♡
-
-
-
-
-<img width="99" height="56" alt="tumblr_e97e699b0cc38e902d908a79e1dda727_74da63d9_100" src="https://github.com/user-attachments/assets/d08f8666-07e2-4210-8b02-75abafa5d21c" />
-
-<img width="64" height="64" alt="tumblr_3409e6986865766478815236c000ca36_86f4edca_75" src="https://github.com/user-attachments/assets/99e0f9a7-c362-429b-999f-72591419907e" />
-
-[atabook](https://sproutstray.atabook.org/) + [strawpage](https://sprouttray.straw.page)
+former pt player,꒰۪۪ ᩧ݂۫  𓈒ֺּ  𓈒  𓈒  𓈒⠀
