@@ -3,7 +3,7 @@
 <img width="1500" height="210" alt="tumblr_4cb8a264e7dc961d1e54935b65d12ac3_6663481f_2048" src="https://github.com/user-attachments/assets/74114c51-96ba-47d6-a9e2-c2f76132e004" />
 
 
-<img width="736" height="736" alt="Sprout Seedly" src="https://github.com/user-attachments/assets/a5b57aeb-f599-4468-ae5a-13217f86139d" />
+<img width="600" height="600" alt="Sprout Seedly" src="https://github.com/user-attachments/assets/a5b57aeb-f599-4468-ae5a-13217f86139d" />
 
 
 
