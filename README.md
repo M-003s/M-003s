@@ -3,5 +3,4 @@
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FM-003s"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FM-003s&label=%E2%99%A1%20cupcakes%20given&labelColor=%2337d67a&countColor=%23f47373&style=plastic" /></a>
 
 <p align="center">
- <img width="300" height="300" alt="sprout dandys world" src="https://github.com/user-attachments/assets/ae662bab-dce0-4a2c-a631-61d9328550b8" />
-
+<img width="300" height="300" alt="image-d696-gradientmap pro" src="https://github.com/user-attachments/assets/117553ac-5d05-439e-9dbd-c4a7dbff4a1d" />
