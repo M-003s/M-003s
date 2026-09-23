@@ -1,2 +1,6 @@
 <img width="1910" height="228" alt="tumblr_4cb8a264e7dc961d1e54935b65d12ac3_6663481f_2048" src="https://github.com/user-attachments/assets/47732716-6b53-42ad-aabd-75c024a50fb3" />
 
+<p align="center">
+ <img width="500" height="500" alt="sprout dandys world" src="https://github.com/user-attachments/assets/ae662bab-dce0-4a2c-a631-61d9328550b8" />
+
+
