@@ -5,4 +5,3 @@
 <p align="center">
  <img width="300" height="300" alt="sprout dandys world" src="https://github.com/user-attachments/assets/ae662bab-dce0-4a2c-a631-61d9328550b8" />
 
-
