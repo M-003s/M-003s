@@ -6,16 +6,21 @@
 <img width="300" height="300" alt="image-861e-gradientmap pro" src="https://github.com/user-attachments/assets/03abe6b8-1dda-4c91-8a79-fc5ec42acb3a" />
   <p align="center">
 these arts are not mine!
-  
+
+<div align="center"> 
  <details>
-  <summary> byi</summary>
-$\color{red}{\{
-   \text{w2i + c*h}\\
-  \text{I block freely!}\\ 
-  \text{I am mostly offtab, dont get mad when I dont respond please!}\\
-   \text{i might be a little stubborn, remind me if it bothers you!}\\
-   }}$ w
-  
+  <summary><img width="20" height="20" alt="tumblr_b673500c847ca6fed14edcb8cf520c9f_ff22387d_75" src="https://github.com/user-attachments/assets/163c2ac4-6932-45ea-968c-386be6371e5f" />byi</summary>
+  <br>
 
+$\color{red}{\text{w2i + c*h}}$
+<br>
+$\color{green}{\text{I block freely!}}$
+<br>
+$\color{red}{\text{I am mostly offtab, dont get mad when I dont respond please!}}$
+<br>
+$\color{green}{\text{i might be a little stubborn, remind me if it bothers you!}}$
 
+ </details>
+ <br>
+</div>
 
