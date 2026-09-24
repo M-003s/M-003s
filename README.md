@@ -1,7 +1,6 @@
 
 <p align="center">
-<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FM-003s"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FM-003s&label=%E2%99%A1%20%20cupcakes%20baked&labelColor=%23f47373&countColor=%23ffd1dc&style=flat-square" /></a>
-
+<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FM-003s"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FM-003s&label=%E2%99%A1%20%20cupcakes%20baked&labelColor=%23f47373&countColor=%2337d67a&style=plastic" /></a>
 <p align="center">
 <img width="300" height="300" alt="image-861e-gradientmap pro" src="https://github.com/user-attachments/assets/03abe6b8-1dda-4c91-8a79-fc5ec42acb3a" />
   <p align="center">
