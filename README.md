@@ -14,11 +14,11 @@ these arts are not mine!
 
 $\color{red}{\text{w2i + c*h}}$
 <br>
-$\color{green}{\text{I block freely!}}$
+$\color{red}{\text{I block freely!}}$
 <br>
 $\color{red}{\text{I am mostly offtab, dont get mad when I dont respond please!}}$
 <br>
-$\color{green}{\text{i might be a little stubborn, remind me if it bothers you!}}$
+$\color{red}{\text{i might be a little stubborn, remind me if it bothers you!}}$
 
  </details>
  <br>
