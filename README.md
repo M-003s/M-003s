@@ -9,7 +9,7 @@ these arts are not mine!
   
  <details>
   <summary> byi</summary>
-$\color{red}{\text{
+$\color{red}{\{
    \text{w2i + c*h}\\
   \text{I block freely!}\\ 
   \text{I am mostly offtab, dont get mad when I dont respond please!}\\
