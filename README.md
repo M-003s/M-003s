@@ -4,3 +4,18 @@
 
 <p align="center">
 <img width="300" height="300" alt="image-861e-gradientmap pro" src="https://github.com/user-attachments/assets/03abe6b8-1dda-4c91-8a79-fc5ec42acb3a" />
+  <p align="center">
+these arts are not mine!
+  
+ <details>
+  <summary> byi</summary>
+$\color{red}{\text{
+   \text{w2i + c*h}\\
+  \text{I block freely!}\\ 
+  \text{I am mostly offtab, dont get mad when I dont respond please!}\\
+   \text{i might be a little stubborn, remind me if it bothers you!}\\
+   }}$ w
+  
+
+
+
