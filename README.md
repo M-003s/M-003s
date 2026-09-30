@@ -22,7 +22,7 @@ $\color{red}{\text{I am mostly offtab, dont get mad when I dont respond please!}
 <br>
 $\color{red}{\text{i might be a little stubborn, remind me if it bothers you!}}$
 <br>
-$\color{red}{\text{more on my strawpage !}}$
+$\color{red}{\text{I only allow sfw !}}$
 <br>
 
  </details>
